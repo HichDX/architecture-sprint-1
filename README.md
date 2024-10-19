@@ -38,4 +38,4 @@
 
 # Задание 2
 
-    https://drive.google.com/file/d/1ZzA_EakVmdf-EbCmo5HNA7ECJ7XtchEf/view?usp=sharing
+    https://drive.google.com/file/d/1nFewAIJyjQmF1gwhRWy7-PmIlksEbhVT/view?usp=sharing
